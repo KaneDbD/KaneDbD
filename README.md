@@ -9,4 +9,4 @@ My favorite games are: The Last of Us part 1, Uncharted 2, Minecraft, Dead by Da
 My favorite TV shows: Breaking Bad, The Walking Dead, Fight Club, American Psycho, Nightcrawler.
 Bla bla bla anime: AoT, Evangelion, Steins;Gate, Cyberpunk: Edgerunners, Bunny Girl Senpai, Death Note, Tokyo Ghoul, Noragami, Akame ga Kill.
 Currently trying to translate some projects & I'm trying to learn coding(not really).
-Right now I'm playing Dead Space.
+Right now I'm playing Dead Space + Hyperdimension Neptunia Re;Birth1.
