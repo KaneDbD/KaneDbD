@@ -9,7 +9,7 @@ I probably didnt list all of the VNs I played, but anyway.
 Muv-Luv, Little Busters, Rewrite.
 # My fav. games are: 
 - The Last of Us Part I, Uncharted 2 & 3, ~~Dead by Daylight,~~ Minecraft, Titanfall 2, Project Zomboid, Persona 5,4,3.
-# My favorite TV shows: 
+# My fav. TV shows: 
 Breaking Bad, Fight Club, American Psycho, Nightcrawler, I Am Legend.
 - Anime: Attack on Titan, Evangelion, Steins;Gate, Cyberpunk: Edgerunners, Bunny Girl Senpai, Akame ga Kill.
 ### Last game finished: The Last of Us Part I, Uncharted 3, Persona 4 GOLDEN.
