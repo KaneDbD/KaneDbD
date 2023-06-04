@@ -4,7 +4,6 @@
 - My pc build: G4560, gtx 1050 & 8 gb ram ddr4.
 # VNs played:
 Yttd, DDLC, everlasting summer, clannad(prologue),chronobox, steins;gate & 0, you and me and her, ever17, katawa shoujo, tiny bunny, danganronpa 1&2, Chaos;Head, remember11, Love Money Rock n'Roll, Zero Escape 999 & vlr, Raging Loop, The Fruit Of Grisaia(dropped), House In Fata Morgana.
-I probably didnt list all of the VNs I played, but anyway. 
 - I'm planning to play these:
 Muv-Luv, Little Busters, Rewrite.
 # My fav. games are: 
