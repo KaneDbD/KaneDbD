@@ -3,7 +3,7 @@
 - I'm interested in emulation for now.
 - My PC build: G4560, gtx 1050 2gb & 8 gb ram ddr4.
 # VNs played:
-Your Turn To Die, Doki Doki Literature Club, Everlasting Summer, Clannad(prologue), Chronobox, Steins;gate & 0, You and Me and HER, Ever17, Katawa Shoujo, Tiny Bunny, Danganronpa 1&2, Chaos;Head, Remember11, Love Money Rock n'Roll, Zero Escape 999 & vlr, Raging Loop, The Fruit Of Grisaia(dropped), House In Fata Morgana, Euphoria, Muv-Luv Extra.
+Your Turn To Die, Doki Doki Literature Club, Everlasting Summer, Clannad(prologue), Chronobox, Steins;Gate & 0, You and Me and HER, Ever17, Katawa Shoujo, Tiny Bunny, Danganronpa 1&2, Chaos;Head, Remember11, Love Money Rock n'Roll, Zero Escape 999 & vlr, Raging Loop, The Fruit Of Grisaia(dropped on vol.1), The House In Fata Morgana, Euphoria, Muv-Luv Extra.
 - I'm planning to play these:
 ~~Muv-Luv~~, Little Busters, Rewrite.
 # My fav. games are: 
