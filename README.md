@@ -7,7 +7,7 @@ Your Turn To Die, Doki Doki Literature Club, Everlasting Summer, Clannad(prologu
 - I'm planning to play these:
 ~~Muv-Luv~~, Little Busters, Rewrite.
 # My fav. games are: 
-- The Last of Us Part I, Uncharted 2 & 3, Muv-Luv, ~Dead by Daylight,~~ Minecraft, Titanfall 2, Project Zomboid, Persona 5,4,3.
+- The Last of Us Part I, Uncharted 2 & 3, Muv-Luv, ~~Dead by Daylight,~~ Minecraft, Titanfall 2, Project Zomboid, Persona 5,4,3.
 # My fav. TV shows: 
 Breaking Bad, Fight Club, American Psycho, Nightcrawler, I Am Legend.
 - Anime: lain, Evangelion, Steins;Gate, Cyberpunk: Edgerunners, Bunny Girl Senpai, Akame ga Kill.
