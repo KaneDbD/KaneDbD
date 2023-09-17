@@ -11,5 +11,5 @@ Your Turn To Die, Doki Doki Literature Club, Everlasting Summer, Clannad(prologu
 # My fav. TV shows: 
 Breaking Bad, Fight Club, American Psycho, Nightcrawler, I Am Legend.
 - Anime: lain, Evangelion, Cyberpunk: Edgerunners, Bunny Girl Senpai, Akame ga Kill.
-### Last game finished: The Last of Us, Uncharted 3, Persona 4 GOLDEN, Euphoria, Muv-Luv, Muv-Luv Alternative, Chaos;Child, Chaos;HEad NOah.
+### Last game finished: The Last of Us, Uncharted 3, Persona 4 GOLDEN, Euphoria, Muv-Luv, Muv-Luv Alternative, Chaos;Child, Chaos;HEad NOah, Saya no Uta.
 ## *If you play Roblox and use Windows, then please use this*: [Bloxstrap](https://github.com/pizzaboxer/bloxstrap/)
